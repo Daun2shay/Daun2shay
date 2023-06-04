@@ -6,3 +6,4 @@
 - 💬 Ask me about my record collection
 - 📫 How to reach me: Daun2shay@gmail.com
 - 😄 Pronouns: He, Him
+- 🔗 My Website www.daun2shay.com
